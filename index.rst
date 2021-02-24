@@ -1,1 +1,3 @@
  Use your Trend Micro license to protect several computers with the Trend Micro security program. Therefore, use the code to get a full PC protection suite with security functionality after your product registration and activation . To activate Trend micro, make sure you already have an activation code that you’ll probably enter on the trendmicro site. `www.trendmicro.com/activate <https://www.trend5microiactivate.com/>`__. | `trend micro activate <https://www.trend5microiactivate.com/trend-micro-activate/>`__
+ 
+`www.trendmicro.com/activate <https://www.trend5microiactivate.com/trend-micro-activate/>`__
